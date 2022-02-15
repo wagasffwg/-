@@ -1,4 +1,1 @@
-# -
-@wagasffwg
-http://bing.com
-wagasffwg
+# https://wagasffwg.wordpress.com
